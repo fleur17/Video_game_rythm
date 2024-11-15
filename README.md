@@ -70,3 +70,12 @@ Player name
 Score
 Time spent
 Character chosen
+
+
+
+Link of the video:
+https://youtu.be/LXAFYKHYrkI?si=5zQOFPXOvRum525w
+
+
+
+
