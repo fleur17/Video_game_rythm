@@ -76,6 +76,9 @@ Character chosen
 Link of the video:
 https://youtu.be/LXAFYKHYrkI?si=5zQOFPXOvRum525w
 
+![Capture d’écran 2024-11-16 001730](https://github.com/user-attachments/assets/7c6560d9-7d77-4627-af8e-63de4283b631)
+
+
 
 
 
