@@ -78,6 +78,11 @@ https://youtu.be/LXAFYKHYrkI?si=5zQOFPXOvRum525w
 
 ![Capture d’écran 2024-11-16 001730](https://github.com/user-attachments/assets/7c6560d9-7d77-4627-af8e-63de4283b631)
 
+![Capture d’écran 2024-11-16 001800](https://github.com/user-attachments/assets/28ddf023-07bd-4a95-b1c9-7c9855b43d94)
+
+
+![Capture d’écran 2024-11-16 001816](https://github.com/user-attachments/assets/9fc14700-9b7b-4537-b1b2-760e606dc62a)
+
 
 
 
